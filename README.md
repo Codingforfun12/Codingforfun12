@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Codingforfun12
+- 👋 Hi, I’m @Xiangyu
 - 👀 I’m interested in Cognitive Science
-- 🌱 I’m currently learning mental metaphor
+- 🌱 I’m currently an undergraduate in Applied Linguistics
 - 💞️ I’m looking to collaborate on using psycholinguistic approach to cracking mental metaphor
 - 📫 How to reach me: phoebusa50@gmail.com
 
